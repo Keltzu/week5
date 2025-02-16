@@ -1,0 +1,1 @@
+Did pretty good job this week. We progressed as a team very much at the project and got done some kind of prototype and learned new things.
